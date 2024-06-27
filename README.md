@@ -1,2 +1,3 @@
-#DORRRRR 
-Ting ting tingggg selamat datang di website spesial untuk kamu
+# DORRRRRR
+# TARAAAAAAAA
+Selamat datang di website buatan aku, website ini spesial untuk kamuu. Skrolll sampek bawah ya. 
